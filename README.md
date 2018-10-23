@@ -1,1 +1,1 @@
-# Balance-Impariment-Measurement-using-MArgin-of-Stability-in-Lower-Limb-Transtibial-Amputation
+# Balance-Impariment-Measurement-using-Margin-of-Stability-in-Lower-Limb-Transtibial-Amputation
